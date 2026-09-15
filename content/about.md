@@ -27,12 +27,16 @@ Write me as I continue to explore, innovate, and inspire in the ever-evolving wo
 
 ### Degrees
 
+**Jul 2026–Present** &ensp; PhD in Allied Health, Australian Catholic University | Melbourne Campus | Australia
+
 **2020-2022** &ensp; MA in Applied Psychology, Jamia Millia Islamia University (JMI) | New Delhi | IN
 
 **2016–2019** &ensp; BA (Hons.) in Psychology, Jamia Millia Islamia University (JMI) | New Delhi | IN
 
 
 ### Scholarships
+
+**2026–Present** &ensp; Research Training Program (RTP) Scholar, Australian Catholic University | Melbourne | Australia
 
 **2017-2018** &ensp; Merit Scholar, Jamia Millia Islamia (JMI) | New Delhi, IN
 
